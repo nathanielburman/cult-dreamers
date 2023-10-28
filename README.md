@@ -14,3 +14,5 @@ https://www.youtube.com/watch?v=3N3nvtWxsfs&list=OLAK5uy_mudPgSWZMPIeoQzK0fxZXiD
 
 Dream People Are Real People
 https://www.youtube.com/watch?v=698d0_n0QiY&list=OLAK5uy_nGSLTagm6LZwYzuWudCYmJLP7I7B-bze0
+
+Watch A Scanner Darkly, for a glipse of your prophet.
